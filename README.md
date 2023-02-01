@@ -1,1 +1,1 @@
-# ortikov-muhammad.com
+# omntech.github.io
